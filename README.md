@@ -15,3 +15,13 @@
 </div>
 
 <hr>
+
+#### Linkedin EN: https://www.linkedin.com/posts/lukebluelox_venezuela-maduro-usforeignpolicy-activity-7414659708130820096-JxhQ
+
+#### Linkedin PL: https://www.linkedin.com/posts/lukebluelox_wenezuela-maduro-usa-activity-7414659668834246656-d-XU
+
+#### 𝕏 EN: https://x.com/LukeStriderGM/status/2008896058504474892
+
+#### 𝕏 PL: https://x.com/LukeStriderGM/status/2008895867244191819
+
+<hr>
